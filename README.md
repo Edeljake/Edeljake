@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Edeljake
+- <title> this is to my crush
 -     nice to meet you
        Sana na crush back moko
--      yes or no
+-      crush back or die
        Chat to me the answer
+        Yes (y) no (n) 
+        y y y y y y y
 
-        Pls answer me
-
-        
+        Yey yes
